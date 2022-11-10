@@ -1,9 +1,12 @@
 # Lia1
 Sammanfattning
 
+Raportens syfte är att ni som läser ska få en liten inblick i hur det var ute på min LIA. Lite vad jag har gjort under dessa snabba men härliga veckor.
+Jag har lärt mig otroligt mycket saker, men det viktigase måste nog vara sammarbetet. Inte bara i mellan mig och mina klasskompisar utan sammarbetet mellan mig och företaget, komma med nya lösningar och förbättringar. Vet inte om jag hade kunnat få en bättre LIA plats. Stort tack till Napoleon och Nathania för dessa lärorika veckor.
+
 Inleding
 
-Jag hade inte så mycket till planering innan jag gick in på lian, Jag blev tilltelad denna plats så jag visste inte så mycket om företaget. Mitt syfte med lian var att få en bredare kunskap om hur det är att vara ute och jobba på ett riktigt företag. Mina mål var ganska simpla, att lära mig mer om branchen och det känner jag att jag har gjort.
+Jag hade inte så mycket till planering innan jag gick in på lian, Jag blev tilltelad denna plats så jag visste inte så mycket om företaget. Mitt syfte med LIAn var att få en bredare kunskap om hur det är att vara ute och jobba på ett riktigt företag. Mina mål var ganska simpla, att lära mig mer om branchen och det känner jag att jag har gjort.
 
 Presentation av utbildningen
 
@@ -50,3 +53,6 @@ Sista veckan, Jag var klar med mina delar och det fanns inga kort kvar att ta if
 3 dagar senare var jag klart med den. Då fick jag ett nytt kort av en kollega. "Privicy" sida och 2 dagar senare var den också färdig.
 
 Diskussion och Slutsatser
+
+Jag trodde att LIAn skulle vara mycket lättare, vet inte riktigt varför. Kan vara så för att allt sammarbete i skolan har gått så lätt, sanbbt och smidigt.
+Det var svårt då det inte var så uppstyrt med vem som skulle göra vad, samt att vi inte hade någon som sa till oss vad som vad rätt och fel. Vi fick bestämma det lite själva. Jag tror att till nästa LIA så kommer jag ha en annan syn på det, inte förvänta mig att allt kommer vara så lätt för när det kommer till människor så är det inte så lätt att sammarbeta ibland. Jag förstår nu varför denna utbidlingen har så stort tryck på LIA för det är otroligt lärorikt. Tror att jag har lärt mig lika mycket på dessa 7 veckor som jag har gjort resterande veckor i skolan. En annan lärdom helt klart men lika viktig för det. Man blir otroligt taggad på att bli färdig med utbildningen och börja jobba på riktigt. Vill också passa på att tacka Njord egineering för att de tog emot oss med så kort varsel. De har varit så otroligt duktiga och har verkligen bjudigt in en i Njordfamiljen.
